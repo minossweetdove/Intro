@@ -3,17 +3,17 @@ he/him , 15
 
 I like being called Gabriel or Snake
 
-c+h are okay
+c+h are okay, dnc outfits and ask for inspo
 
 Mirage and Gabriel copinglink
 
-I really love Minos so Minos yumeshippers PLS dni
+I really love Minos so Minos yumeshippers PLS dni (i dont selfship with him but im just not comfortable with them)
 
 I have social anxiety and im scared to talk to people but feel free to interact (I might be dry or not), plus i get nervous easily and yes i do see your whispers sorry if i dont reply and im very awkward
 
 I also like rainbow lorikeets 
 
-my favourite ultrakill ship is minosgabe dont kill me please
+my favourite and comfortable ultrakill ship is minosgabe dont kill me please
 
 If you like terraria and ultrakill pls add me i love both of those games alot
 
